@@ -1,4 +1,4 @@
-
+rivals hidden Script is the best rivals Script, featuring auto-farm and custom skins. Safe and powerful for all your needs.
 
 
 
